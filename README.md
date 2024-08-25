@@ -13,7 +13,8 @@
 
 - 📫 How to reach me **itschandan26@gmail.com**
 
-- 📄 Know about my experiences [Resume Link]([https://drive.google.com/file/d/1k_aqjEeZBwL5pXP7l1o3ik6cKDV_PFrs/view?usp=sharing](https://drive.google.com/file/d/1nm0u1f2vrsk9ixLjY3ospkuBrGxu4s9l/view?usp=drive_link))
+- 📄 Know about my experiences [https://drive.google.com/file/d/1k_aqjEeZBwL5pXP7l1o3ik6cKDV_PFrs/view?usp=sharing](https://drive.google.com/file/d/1nm0u1f2vrsk9ixLjY3ospkuBrGxu4s9l/view?usp=drive_link)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
